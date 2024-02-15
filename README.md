@@ -1,4 +1,3 @@
-# Ioana-s-perfumerie
 <html>
 	<head>
 		<title> Parfumurile Ioanei </title>
