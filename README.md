@@ -9,5 +9,5 @@ Vineri, pe data de 15 februarie 2024, in corpul B al colegiului national "Nicola
 Preturile pot varia de la 60 RON pana la 260 RON, alese cu grija in functie de parfumul dorit. <br><br>
 Mulțumim că ai vizitat site-ul publicitar! Ne bucurăm că ai avut ocazia să te interesezi de gama de parfumuri de înaltă calitate. Pentru orice întrebări sau informații suplimentare, te rugăm să ne contactezi la pagina de instagram: @_.ioanaaaaa <br>
 🌸🌸🌸🌸🌸 <Br>
-	<b></font>
+	<b>
 
